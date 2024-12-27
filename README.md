@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Ridhi Soni
+- 👀 I’m interested in Finances and Numbers
+- 💞️ I’m looking to collaborate and provide my practical knowledge to facilitate your finances by consultancy services
+- 📫 How to reach me Email - ridhi1009@gmail.com
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: It's now how much money you make. It's ho much money you keep. 
